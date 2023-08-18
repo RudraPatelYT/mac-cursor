@@ -1,0 +1,1 @@
+Mac cursor for windows
